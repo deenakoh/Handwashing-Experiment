@@ -1,0 +1,1 @@
+Dr. Ignaz Semmelweis was a Hungarian physician born in 1818. His work was dedicated to childbed fever: a deadly disease affecting women that had just given birth. His hypothesis was that 10% of the women giving birth die from it. He believed the cause to be because of the contaminated hands delivering the babies due to neglect of handwashing at Vienna General Hospital.
